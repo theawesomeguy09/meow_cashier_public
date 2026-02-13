@@ -1,1 +1,1 @@
-google.com, pub-6657872438036170, DIRECT, f08c47fec0942fa0
+the page for Meow Cashier
